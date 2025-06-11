@@ -1,0 +1,1 @@
+# Major-Fund-Pro-Turkiye-nedir-incelemesi
